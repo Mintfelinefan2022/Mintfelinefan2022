@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mintfelinefan2022
-- 👀 I’m interested in History,tech and Computer fixing
+- 👀 I’m interested in History,tech Chemistay Computer fixing
 - 🌱 I’m currently learning PC fixing
 - 💞️ I’m looking and planning collaborate 3D Animation making with my sister LaaniXD
   
