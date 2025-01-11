@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning PC fixing
 - 💞️ I’m looking and planning collaborate 3D Animation making with my sister LaaniXD
   
-- 😄 Pronouns: He/it
+- 😄 Pronouns: He/it's/it
 - 
 
 <!---
